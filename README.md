@@ -11,3 +11,9 @@ Our project addresses the challenge of users struggling to compare product price
 
 <img width="454" alt="Screenshot 2024-12-28 at 8 45 59 AM" src="https://github.com/user-attachments/assets/5cc72e9c-e033-4c66-b01f-5102ad2a3156" />
 
+# VIDEO 
+
+
+https://github.com/user-attachments/assets/a537b6d3-9132-4826-91c6-b2bb2e9d6b92
+
+
